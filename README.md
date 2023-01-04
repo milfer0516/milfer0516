@@ -14,3 +14,9 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+### I’m currently looking for my practices Analysis and Development of Information Systems
+
+### Where to find me
+- [Linkedin](https://www.linkedin.com/in/milferantoniomu%C3%B1oz/)
+
